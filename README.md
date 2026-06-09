@@ -18,6 +18,6 @@
 - Estatística e Probabilidade
 
 📫 Contato:
-lucasvaleriodasilva13@gmail.com
-(17)997580926
-https://www.linkedin.com/in/lucas-valerio-da-silva-77b30725b/
+- lucasvaleriodasilva13@gmail.com
+- (17)997580926
+- https://www.linkedin.com/in/lucas-valerio-da-silva-77b30725b/
